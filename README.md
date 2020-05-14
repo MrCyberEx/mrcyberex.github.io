@@ -1,2 +1,0 @@
-# mrcyberex.github.io
-Page
